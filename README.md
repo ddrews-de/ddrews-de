@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Daniel Drews (@Myticktack)
+- 👋 Hi, I’m Daniel Drews (@ddrews-de)
 - 👀 I’m interested in learning more about better ways of organisation
 - 🌱 I’m currently learning about communication and myself
 - 💞️ I’m looking to collaborate on learning new ways of thinking
